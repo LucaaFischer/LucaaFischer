@@ -8,6 +8,6 @@ I'm currently learning Java.
 
 I'm interested in Bho.
 
-I live in Germany. 
+I live on earth. 
 
 Fun-Fact: I dont think Fun-Facts are funny. 
