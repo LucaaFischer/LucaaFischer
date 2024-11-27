@@ -6,7 +6,7 @@ I'm Kuca.
 
 I'm currently learning Java.
 
-I'm interested in Software Development.
+I'm interested in Bho.
 
 I live in Germany. 
 
