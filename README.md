@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hello there (˶ᵔ ᵕ ᵔ˶)
 
 Henlo, I'm under de water. 
 
